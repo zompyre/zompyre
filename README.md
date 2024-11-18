@@ -1,4 +1,4 @@
 <p align="center"> <img src="https://64.media.tumblr.com/47eb454541c015e124a483a7dad01671/911b06f6a0f83876-50/s500x750/2e92b9bf385ec812180db5c1fcb4515c94df6029.pnj" width="250" height="250"/> </p>
 <p align="center"> basic dni;⠀proship & netrual.⠀trans-ids. <br/> endo "sys".⠀you actively seek problems, <br/> drama, & arguements.⠀i block freely.</p>
-<p align="center"> i'm not one to start convos with those i do <br/> not know. i may ignore you & i apologize. <br/>  i'm usually in whispers or party chat. </p>
+<p align="center"> i usually keep to myself & friends. i may <br/> not respond if i do not know you /lh. in <br/> whispers or party chat for the most part. </p>
 <p align="center"> please do not copy, upload, or take inspo <br/> from any of my ponytown skins. </p>
