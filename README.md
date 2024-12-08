@@ -1,4 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=zompyre&color=blue&label=Software+Instability&style=pixel)
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant+Infant&size=18&duration=4000&pause=500&color=0000FF&center=true&vCenter=true&height=40&lines=My+name+is+Connor+.+.+.;I'm+the+android+sent+by+Cyberlife." alt="Typing SVG" /></a> </p>
 <p align="center"> <img src="https://64.media.tumblr.com/05b3bb83853e0862fbae8db8bf805886/9a4f1bc264721eed-95/s500x750/9c95246ce237bece1024cd5fb8e1272fcffd2f08.pnj" width="250" height="250"/> </p>
 <p align="center"> basic dni;⠀proship & netrual.⠀trans-ids. <br/> endo "sys".⠀you actively seek problems, <br/> drama, & arguements.⠀i block freely. <br/><i><a href="https://rentry.co/goregvt">+ media/fandom specific dni</a>.</i></p>
 <p align="center"> mainly in whispers or party chat. may not <br/> respond in public chat. not a "c+h" person, <br/> i will move away if i don't know you.</p>
