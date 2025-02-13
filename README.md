@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=zompyre&color=blue&label=Software+Instability&style=pixel)
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant+Infant&size=18&duration=4000&pause=500&color=0000FF&center=true&vCenter=true&height=40&lines=My+name+is+Connor+.+.+.;I'm+the+android+sent+by+Cyberlife." alt="Typing SVG" /></a> </p>
-<p align="center"> <img src="https://64.media.tumblr.com/05b3bb83853e0862fbae8db8bf805886/9a4f1bc264721eed-95/s500x750/9c95246ce237bece1024cd5fb8e1272fcffd2f08.pnj" width="250" height="250"/> </p>
+<p align="center"> <img src="https://64.media.tumblr.com/6980f1a7d543297c3d419fb0af986d47/cc54622d2062d490-2a/s1280x1920/1f730cb83d337eb4ac59dbe8a098b12207825e32.pnj" width="500" height="200"/> </p>
 <p align="center"> basic dni;⠀proship & netrual.⠀trans-ids. <br/> endo "sys".⠀you actively seek problems, <br/> drama, & arguements.⠀i block freely. <br/><i><a href="https://rentry.co/goregvt">+ media/fandom specific dni</a>.</i></p>
-<p align="center"> whispers or party chat. may not respond <br/> in public chat. might ignore you if i'm<br/>alone. not c+h friendly with strangers.</p>
+<p align="center"> whispers or party chat. may not respond <br/> in public chat. i don't open up to strangers <br/> that well; please be patient.</p>
 <p align="center"> please do not copy, upload, or take inspo <br/> from any of my ponytown skins. </p>
 <p align="center"> <img src="https://64.media.tumblr.com/21a37741b170b3bac9e3b37547b4efbb/7a4056f3e3ed25f3-7c/s100x200/60bdfb80e2284a27a2a1b14bc5a2ca83efd5777d.gifv" width="20" height="20"/>⠀⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=MonteCarlo&size=18&duration=4000&pause=500&color=FFFFFF&vCenter=true&width=110&height=20&lines=angel+in+the+machine." alt="Typing SVG" /></a> </p>
