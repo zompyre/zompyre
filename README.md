@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=zompyre&color=blue&label=Software+Instability&style=pixel)
 <p align="center"> <img src="https://64.media.tumblr.com/4c05ea9473b9e98caac2c2924f97ce7a/ca8c06ea3d312600-39/s2048x3072/e7f757e809cf0694f248833ced99858dd477b0f7.pnj" width="550" height="87"/> <br/> <p align="center"> <img src="https://64.media.tumblr.com/d6f7dcd43a5867fb674c446723824a2a/ca8c06ea3d312600-f7/s2048x3072/ebdd62c220e67cf991033a8c9b062b2d594bd0a2.pnj" width="550" height="309"/> </p>
-<p align="center"> basic dni;⠀proship & netrual.⠀trans-ids. <br/> endo "sys".⠀you actively seek problems, <br/> drama, & arguements.⠀i block freely. <br/><i><a href="https://rentry.co/goregvt">+ media/fandom specific dni</a>.</i></p>
-<p align="center"> whispers or party chat. may not respond <br/> in public chat. i don't open up to strangers <br/> that well; please be patient.</p>
-<p align="center"> please do not copy, upload, or take inspo <br/> from any of my ponytown skins. </p>
+<p align="center"> <sub> basic dni;⠀proship & netrual.⠀trans-ids. <br/> endo "sys".⠀you actively seek problems, <br/> drama, & arguements.⠀i block freely. <br/><i><a href="https://rentry.co/goregvt">+ media/fandom specific dni</a>.</i> </sub> </p>
+<p align="center"> <sub> whispers or party chat. may not respond <br/> in public chat. i don't open up to strangers <br/> that well; please be patient. </sub> </p>
+<p align="center"> <sub> please do not copy, upload, or take inspo <br/> from any of my ponytown skins. </sub> </p>
 <p align="center"> <img src="https://64.media.tumblr.com/36f6ac031220ee8a97fb46726331b0c8/ca8c06ea3d312600-b3/s2048x3072/edab647ddd612752c23868d278f42a33dfa07773.pnj" width="550" height="227"/> <br/> <p align="center"> <img src="https://64.media.tumblr.com/ad88038ce2662947080433512f12d35d/ca8c06ea3d312600-2b/s2048x3072/8a5abb593d2a524c040c9b6858f523944afa8eef.pnj" width="550" height="87"/> </p>
