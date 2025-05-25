@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=zompyre&color=blue&label=Software+Instability&style=pixel)
 
-<p align="center"> <img src="https://64.media.tumblr.com/8fed66af3fadf61cd550ee5677ac300b/52dd922a6bd2557f-66/s2048x3072/33b0843f49a66ebaebb62fdfd6a945c3d2343f16.pnj" width="400" height="63"/><br><img src="https://64.media.tumblr.com/1215bd0230caff1c701a5361656fb538/52dd922a6bd2557f-8b/s2048x3072/6c65438b642ae8a7eb24cf138412a857cb64ea20.pnj" width="400" height="225"/> </p>
+<p align="center"> <img src="https://64.media.tumblr.com/2b2709cd262bfa2ad40dd5c863de24d7/1bb9b0bc1e99edbb-a3/s2048x3072/39d6f17d7c9fcad5f65dc9d7c61898f791792b63.pnj" width="500" height="250"/></p>
 <p align="center"> <sub> basic dni;⠀proship & netrual.⠀trans-ids.⠀endo "sys". <br> you actively seek problems, drama, & arguements.⠀<br> i block freely.⠀⠀<i><a href="https://rentry.co/goregvt">+ media/fandom specific dni</a>.</i> </sub> </p>
 <p align="center"> <sub> whispers or party chat. may not respond in public chat. <br> i don't open up to strangers that well; please be patient. </sub> </p>
 <p align="center"> <sub> please do not copy, upload, or take heavy inspo from any <br> of my ponytown skins. <i>layout crd : @oathem tmblr</i> </sub> </p>
-<p align="center"> <img src="https://64.media.tumblr.com/81724914678300897d0e522499e422b2/52dd922a6bd2557f-a5/s2048x3072/dfecc17d2272791d12deb6dfe63ae601f150c405.pnj" width="400" height="165"/> <br> <img src="https://64.media.tumblr.com/8f5462562dcb93f7987e501e635c3a00/52dd922a6bd2557f-05/s2048x3072/fd1e779f126f3270c0766feda02ce5cf499986e1.pnj" width="400" height="63"/> </p>
