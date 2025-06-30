@@ -4,5 +4,3 @@
 <p align="center"> <sub> basic dni;⠀proship & netrual.⠀trans-ids.⠀endo "sys". <br> you actively seek problems, drama, & arguements.⠀<br> i block freely.⠀⠀<i><a href="https://rentry.co/goregvt">+ media/fandom specific dni</a>.</i> </sub> </p>
 <p align="center"> <sub> whispers or party chat. may not respond in public chat. <br> i don't open up to strangers that well; please be patient. </sub> </p>
 <p align="center"> <sub> please do not copy, upload, or take heavy inspo from any <br> of my ponytown skins. </sub> </p>
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&redirect=true)
