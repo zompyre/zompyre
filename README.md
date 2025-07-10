@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=zompyre&color=blue&label=Software+Instability&style=pixel)
 
 <p align="center"> <img src="https://64.media.tumblr.com/289cfe7176a6dc2eefc1e16ec4fb34ea/55ab60910dd06f5c-d0/s1280x1920/9161177412858fbbd0f0ffe636171e994ad0c96d.pnj" width="500" height="333"/></p>
-<p align="center"> <sub> basic dni;⠀proship & netrual.⠀trans-ids.⠀endo "sys". <br> you actively seek problems, drama, & arguements.⠀<br> i block freely.⠀⠀<i><a href="https://rentry.co/goregvt">+ media/fandom specific dni</a>.</i> </sub> </p>
+<p align="center"> <sub> basic dni;⠀prodarkship & netrual.⠀trans-ids.⠀endo "sys". <br> <i>+ if you support any mentioned above</i>.⠀i block freely. <br> <i><a href="https://rentry.co/goregvt">media/fandom specific dni</a>.</i> </sub> </p>
 <p align="center"> <sub> whispers or party chat. may not respond in public chat. <br> i don't open up to strangers that well; please be patient. </sub> </p>
 <p align="center"> <sub> please do not copy, upload, or take heavy inspo from any <br> of my ponytown skins. </sub> </p>
 <p align="center"> <img src="https://64.media.tumblr.com/c30aa6d45d1375124cfda618f1ef0eca/55ab60910dd06f5c-39/s400x600/9f7217f9906b134516ca9d74e85fdc47b21780aa.pnj"width="200" height="200"/> <br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=IM+Fell+DW+Pica&size=12&duration=1500&pause=1000&color=E1B3B6&center=true&vCenter=true&width=300&lines=birds+of+a+feather%2C+we+should+stick+together.;i+know+i+said+i'd+never+think+i+wasn't+better+alone.;can't+change+the+weather%2C+might+not+be+forever%2C;but+if+it's+forever%2C+it's+even+better+%3C3." alt="Typing SVG" /></a> </p>
