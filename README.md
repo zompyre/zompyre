@@ -4,3 +4,5 @@
 <p align="center"> <sub> basic dni;⠀prodarkship & netrual.⠀trans-ids.⠀endo "sys". <br> <i>+ if you support any mentioned above</i>.⠀i block freely. <br> "non-sharing" yumes iwc,, i find the concept weird. <br> <i><a href="https://rentry.co/goregvt">media/fandom specific dni</a>.</i> </sub> </p>
 <p align="center"> <sub> whispers/party chat. may not respond in public chat. i <br> don't open up that well; please be patient. ask 4 interests </sub> </p>
 <p align="center"> <sub> please do not copy, upload, or take heavy inspo from any <br> of my ponytown skins. </sub> </p>
+
+.　　　　　　　　　　　　　　　　　　　　　　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=false&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&bar_color=000094&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&redirect=true)
