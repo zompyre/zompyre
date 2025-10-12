@@ -3,6 +3,10 @@
 <p align="center"> <sub> whispers/party chat. may not respond in public chat. <br> i don't open up that well. ask abt interests idm ^_^ </sub> </p>
 <p align="center"> <sub> please do not copy, upload, or take heavy inspo <br>from any of my ponytown skins. </sub> </p>
 
-.　　　　　　　　　　　　　　　　　　　　　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=false&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=false&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
+  </a>
+</p>
 
 ![](https://komarev.com/ghpvc/?username=zompyre&color=000000&label=sky+temple+...&style=pixel)
