@@ -1,12 +1,11 @@
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&size=15&duration=2500&pause=300&color=F7F7F7&center=true&vCenter=true&width=435&height=20&lines=made+your+only+feathers+fall.;angel+doll%2C+i+don't+even+know+you+at+all." alt="Typing SVG" /></a> <br> <img src="https://64.media.tumblr.com/d663485652fac6d352a508948569e48b/d20caafa6175ceee-2e/s2048x3072/55816ec2169636f9e0dce2f6d79cd95e7263e6d1.pnj" width="500" height="348"/> </p>
-<p align="center"> <sub> <a href="https://rentry.co/commonsenseislacking">basic dni</a>;⠀prodarkship & netrual.⠀trans-ids.⠀endo "sys". <br> <i>+ if you support any mentioned above</i>.⠀i block freely. <br> if i did, most likely for a reason. <i><a href="https://rentry.co/goregvt">fandom specific dni</a>.</i> </sub> </p>
+<p align="center"> <img src="https://64.media.tumblr.com/db52089d4660ced0f2d442bf98a1152c/b58ea2b6e6864c3a-b0/s2048x3072/ce8e3991976b29ef880fa5b5788f0a8f9eaaa090.pnj" width="500" height="197"/><br><img src="https://64.media.tumblr.com/6601e7c7941d0646601af8425f16cd7a/b58ea2b6e6864c3a-34/s1280x1920/305e7b39a00c906cb19d5c80478e0976ab70e411.pnj" width="500" height="197"/> <br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&size=15&duration=2500&pause=300&color=F7F7F7&center=true&vCenter=true&width=435&height=20&lines=made+your+only+feathers+fall.;angel+doll%2C+i+don't+even+know+you+at+all." alt="Typing SVG" /></a> </p>
+<p align="center"> <sub> <a href="https://rentry.co/commonsenseislacking">basic dni</a>;⠀prodarkship & netrual.⠀trans-ids.⠀endo "sys". <br> <i>i block freely. <a href="https://rentry.co/goregvt">fandom specific dni</a>.</i> </sub> </p>
 <p align="center"> <sub> whispers/party chat. may not respond in public chat. <br> i don't open up that well. ask abt interests idm ^_^ </sub> </p>
-<p align="center"> <sub> please do not copy, upload, or take heavy inspo <br>from any of my ponytown skins. </sub> </p>
-
+<p align="center"> <sub> please do not copy, upload, or take heavy inspo <br>from any of my ponytown skins. </sub></p>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=false&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
-
-![](https://komarev.com/ghpvc/?username=zompyre&color=000000&label=sky+temple+...&style=pixel)
+<p align="center"><img src="https://64.media.tumblr.com/884a7b4a50eef8bc4f95fbb5a45fd0c9/b58ea2b6e6864c3a-e5/s1280x1920/a18ec809a3110b644ff7f79d44a89976293dbdc7.pnj" width="200" height="200"/></p>
+<p align="center"> <img src="https://64.media.tumblr.com/611ae1d8c35667702dcab9577599b3cf/b58ea2b6e6864c3a-f5/s2048x3072/3af53bc21cbffb2785695ca92f610386f0741719.pnj" width="500" height="197"/></p>
