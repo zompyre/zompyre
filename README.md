@@ -1,12 +1,26 @@
-<p align="center"> <img src="https://64.media.tumblr.com/db52089d4660ced0f2d442bf98a1152c/b58ea2b6e6864c3a-b0/s2048x3072/ce8e3991976b29ef880fa5b5788f0a8f9eaaa090.pnj" width="500" height="197"/><br><img src="https://64.media.tumblr.com/6601e7c7941d0646601af8425f16cd7a/b58ea2b6e6864c3a-34/s1280x1920/305e7b39a00c906cb19d5c80478e0976ab70e411.pnj" width="500" height="197"/> <br><img src="https://64.media.tumblr.com/38b09606083bb15a84eacfd11700f67e/b58ea2b6e6864c3a-08/s500x750/6e2c3da47205a94b1f6157debd111ba923961e16.pnj" width="20" height="20"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&size=15&duration=3000&pause=800&color=0000FF&center=true&vCenter=true&width=435&height=20&lines=stay+holy%2C+made+your+only+feathers+fall.;angel+doll%2C+i+don't+know+you+at+all.;holy+girl+from+beyond%2C;feel+these+wings+that+i+got." alt="Typing SVG"/></a><img src="https://64.media.tumblr.com/38b09606083bb15a84eacfd11700f67e/b58ea2b6e6864c3a-08/s500x750/6e2c3da47205a94b1f6157debd111ba923961e16.pnj" width="20" height="20"></p>
-<p align="center"> <sub> <a href="https://rentry.co/commonsenseislacking">basic dni</a>;⠀prodarkship & netrual.⠀trans-ids.⠀"endo" & <br> "mixed origin sys". <i>i block freely + if i fall under <b>your</b> dni.</i> <br><a href="https://rentry.co/goregvt">fandom specific dni</a>.</sub></p>
-<p align="center"> <sub> sometimes in whispers; may not respond in public chat<br> if i am. i don't open up that well. ask abt interests idm ^_^ </sub></p>
-<p align="center">< <img alt="Static Badge" src="https://img.shields.io/badge/mortal%20kombat%E2%A0%80-0000ff?style=plastic&labelColor=0000FF"> <img alt="Static Badge" src="https://img.shields.io/badge/jojo's%20bizarre%20adventure%E2%A0%80-0000ff?style=plastic&labelColor=0000FF"> 3</p>
-<p align="center"> <sub> please do not copy, upload, or take heavy inspo <br>from any of my ponytown skins.</sub></p>
+⠀
+
+⠀
+
+<p align = "center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=DotGothic16&size=11&duration=3000&pause=800&color=7A0000&center=true&vCenter=true&width=300&height=20&lines=tick-tock%2C+tick-tock%2C+madness+comes+tonight.;what's+reality+compared+to+me%3F;i+rest+on+the+bed+%26+i'm+sure+i+slowly+get+mad." alt="Typing SVG" /></a>
+  <br>
+  <img src="https://64.media.tumblr.com/5dda74b0c814dcf8109f2258a50ad729/9670fe00fb303feb-53/s400x600/d62395b4ee57e0d5e242e71d2a16cd7aae25849d.gifv">
+  <br>
+  <sub><a href="https://rentry.co/commonsenseislacking">basic dni</a>:⠀⠀prodarkship.⠀⠀trans-ids.⠀⠀endo & mixed origin
+  <br> "systems".⠀⠀<i>i block & ignore freely</i>.⠀⠀<a href="https://rentry.co/goregvt">fandom/media dni</a>.</sub>
+</p>
+
+<p align = "center">
+  <sub>usually⠀sitting⠀alone.⠀⠀i⠀do⠀not⠀open⠀up⠀that⠀well.
+  <br>please⠀do⠀not⠀<b>copy,⠀upload</b>⠀or⠀take⠀<b>heavy⠀inspo</b>
+  <br>from⠀my⠀ponytown⠀skins.</sub>
+</p>
+
 <p align="center">
+  <img alt="Static Badge" src="https://img.shields.io/badge/%E2%A0%80-%E2%A0%80%E2%A0%80?style=plastic&logoColor=%237A0000&label=%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80&labelColor=%237A0000&color=%237A0000">
+  <br>
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=0000ff&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=7a0000&bar_color_cover=false">
   </a>
 </p>
-<p align="center"><img src="https://64.media.tumblr.com/884a7b4a50eef8bc4f95fbb5a45fd0c9/b58ea2b6e6864c3a-e5/s1280x1920/a18ec809a3110b644ff7f79d44a89976293dbdc7.pnj" width="200" height="200"/></p>
-<p align="center"> <img src="https://64.media.tumblr.com/611ae1d8c35667702dcab9577599b3cf/b58ea2b6e6864c3a-f5/s2048x3072/3af53bc21cbffb2785695ca92f610386f0741719.pnj" width="500" height="197"/></p>
