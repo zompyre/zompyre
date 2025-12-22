@@ -1,7 +1,3 @@
-⠀
-
-⠀
-
 <p align = "center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=DotGothic16&size=11&duration=3000&pause=800&color=7A0000&center=true&vCenter=true&width=300&height=20&lines=tick-tock%2C+tick-tock%2C+madness+comes+tonight.;what's+reality+compared+to+me%3F;i+rest+on+the+bed+%26+i'm+sure+i+slowly+get+mad." alt="Typing SVG" /></a>
   <br>
