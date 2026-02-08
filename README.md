@@ -1,7 +1,7 @@
 <p align = "center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=DotGothic16&size=11&duration=3000&pause=800&color=7A0000&center=true&vCenter=true&width=300&height=20&lines=tick-tock%2C+tick-tock%2C+madness+comes+tonight.;what's+reality+compared+to+me%3F;i+rest+on+the+bed+%26+i'm+sure+i+slowly+get+mad." alt="Typing SVG" /></a>
+  <a href="https://youtu.be/s6Zc5hok0Xw?si=hAx9s30ATdSJq6Ef"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Courier+Prime&size=17&duration=3000&pause=800&color=EAF4F6F6&center=true&vCenter=true&width=435&height=20&lines=when+your+time+has+come%2C;you+will+find+me+third+rock+from+the+sun.;fate+rolls+over+your+shoulders.;when+your+day+is+done%2C;you+will+find+me+here%2C+there." alt="Typing SVG" /></a> </a>
   <br>
-  <img src="https://64.media.tumblr.com/5dda74b0c814dcf8109f2258a50ad729/9670fe00fb303feb-53/s400x600/d62395b4ee57e0d5e242e71d2a16cd7aae25849d.gifv">
+  <img src="https://64.media.tumblr.com/493e29b477f3a6de9463471f98b1c6c8/e57a8cde519b8383-5a/s540x810/896f823c507c391bf7e3a9688e9c5ab497fa1bb7.gifv">
   <br>
   <sub><a href="https://rentry.co/commonsenseislacking">basic dni</a>:⠀⠀prodarkship.⠀⠀trans-ids.⠀⠀endo & mixed origin
   <br> "systems".⠀⠀<i>i block & ignore freely</i>.⠀⠀<a href="https://rentry.co/goregvt">fandom/media dni</a>.</sub>
@@ -14,9 +14,9 @@
 </p>
 
 <p align="center">
-  <img alt="Static Badge" src="https://img.shields.io/badge/%E2%A0%80-%E2%A0%80%E2%A0%80?style=plastic&logoColor=%237A0000&label=%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80&labelColor=%237A0000&color=%237A0000">
+  <img alt="Static Badge" src="https://img.shields.io/badge/%E2%A0%80-%E2%A0%80%E2%A0%80?style=plastic&logoColor=%23EAF4F6&label=%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80&labelColor=%23EAF4F6&color=%23EAF4F6">
   <br>
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=7a0000&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=EAF4F6&bar_color_cover=false">
   </a>
 </p>
