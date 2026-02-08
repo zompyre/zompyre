@@ -1,5 +1,7 @@
 <p align = "center">
-  <a href="https://youtu.be/s6Zc5hok0Xw?si=hAx9s30ATdSJq6Ef"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Courier+Prime&size=17&duration=3000&pause=800&color=EAF4F6F6&center=true&vCenter=true&width=435&height=20&lines=when+your+time+has+come%2C;you+will+find+me+third+rock+from+the+sun.;fate+rolls+over+your+shoulders.;when+your+day+is+done%2C;you+will+find+me+here%2C+there." alt="Typing SVG" /></a> </a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Courier+Prime&size=17&duration=3000&pause=800&color=EAF4F6F6&center=true&vCenter=true&width=435&height=20&lines=when+your+time+has+come%2C;you+will+find+me+third+rock+from+the+sun.;fate+rolls+over+your+shoulders.;when+your+day+is+done%2C;you+will+find+me+here%2C+there." alt="Typing SVG" /></a>
+  <br>
+  <a href="https://youtu.be/s6Zc5hok0Xw?si=hAx9s30ATdSJq6Ef"> <sub>♡</sub> </a>
   <br>
   <img src="https://64.media.tumblr.com/493e29b477f3a6de9463471f98b1c6c8/e57a8cde519b8383-5a/s540x810/896f823c507c391bf7e3a9688e9c5ab497fa1bb7.gifv">
   <br>
