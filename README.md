@@ -19,6 +19,6 @@
   <img alt="Static Badge" src="https://img.shields.io/badge/%E2%A0%80-%E2%A0%80%E2%A0%80?style=plastic&logoColor=%23BA8FE3&label=%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80&labelColor=%23BA8FE3&color=%23BA8FE3">
   <br>
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=EAF4F6&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=BA8FE3&bar_color_cover=false">
   </a>
 </p>
