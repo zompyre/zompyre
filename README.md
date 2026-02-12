@@ -1,7 +1,6 @@
 <p align = "center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=15&duration=3000&pause=500&color=BA8FE3&center=true&vCenter=true&width=435&height=20&lines=the+lights+that+move+sideways+%26+up+%26+down.;the+beat+takes+you+over+%26+spins+you+'round.;our+hearts+steady-beating%2C+the+sweat+turns+to+cold.;we're+slaves+to+the+dj+%26+out+of+control." alt="Typing SVG" /></a>
-  <br>
-  <a href="https://youtu.be/P1uHjUr0lXA?si=LcTgTXkKH4i0LfUi"> <sub>♡</sub> </a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=16&duration=2500&pause=500&color=BA8FE3&center=true&vCenter=true&width=435&height=20&lines=mr+telephone+man%2C+there's+something+wrong+with+my+line!;when+i+dial+my+baby's+number%2C+i+get+a+click+every+time!;when+i+dial+611+to+get+a+service%2C+she+said%2C+%22hello%2C+may+i+help+you+please%3F%22;i+told+her%2C+%22something+must+be+wrong+with+my+phone%2C;'cause+my+baby+wouldn't+hang+up+on+me!%22" alt="Typing SVG" /></a>  <br>
+  <a href="https://youtu.be/GsWrlzjxbPY?si=n0HhbzWaTaLIPHWO"> <sub>♡</sub> </a>
   <br>
   <img src="https://64.media.tumblr.com/5a31b83c3cbf4ffd83bdd5c021859294/9b5563121d753b22-f7/s400x600/6d267a8033adcf19e094e31f1a4c3455d5283851.gifv" width="450" height="375">
   <br>
