@@ -10,6 +10,9 @@
 
 <p align = "center">
   <sub>usually⠀sitting⠀alone.⠀⠀i⠀do⠀not⠀open⠀up⠀that⠀well.
+  <br>tone⠀tags⠀not⠀nessesary!⠀just⠀"/srs"⠀&⠀"/j"⠀are⠀ok.
+  <br>nervous⠀when⠀meeting⠀new⠀people,⠀i⠀may⠀be⠀quiet⠀^_^'
+  <br>
   <br>please⠀do⠀not⠀<b>copy,⠀upload</b>⠀or⠀take⠀<b>heavy⠀inspo</b>
   <br>from⠀my⠀ponytown⠀skins.</sub>
 </p>
