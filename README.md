@@ -10,8 +10,8 @@
 
 <p align = "center">
   <sub><a href="https://rentry.co/commonsenseislacking">basic dni</a>; pro/darkshippers & neutral. transIDs.
-  <br>endo/mixed origin "systems". i block freely.
-  <br><a href="https://rentry.co/goregvt">fandom/media dni.</a></sub>
+  <br>any non-traumagen "systems". i block freely both
+  <br>on & outside of ponytown. <a href="https://rentry.co/goregvt">fandom/media dni.</a></sub>
 </p>
 
 <p align="center">
@@ -20,3 +20,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vynno5s7xnza4np5b5f6dbgiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=692db1&bar_color_cover=false">
   </a>
 </p>
+
+<p align = "center"> <sub> idk where else i'd put this but i'm not on pt 24/7 bro i have things to do & places to be :sob::v: </sub> </p>
