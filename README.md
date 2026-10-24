@@ -18,5 +18,8 @@
   </a>
 </p>
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fondamento&size=18&duration=3000&pause=800&color=BA89E9&center=true&vCenter=true&width=500&height=55&lines=the+message+went+unanswered.;i+stood+alone+as+the+world+ended%2C+%26+you+never+even+replied.;the+last+thing+i+saw+was+the+glow+of+a+message+that+never+came.;then+the+glow+of+a+world+that+went+away." alt="Typing SVG" /></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fondamento&size=18&duration=3000&pause=478&color=BA89E9&center=true&vCenter=true&width=500&height=30&lines=i'm+a+soldier+with+a+knife%2C+all+i+do+is+fucking+hunt.;i+don't+wanna+die+without+you%2C+take+my+blood.;you+can+rip+my+chest+right+open%2C;take+what+you+want+without+me+even+knowing." alt="Typing SVG" /></a>
+</p>
+<p align = "center">
+  <sub><a href= "https://www.youtube.com/watch?v=aDxdwPgUEgs&feature=youtu.be">lyrcs 1</a> & <a href= "https://youtu.be/Swhg_IePifA">lyrcs 2</a></sub>
 </p>
