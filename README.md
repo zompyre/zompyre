@@ -7,7 +7,7 @@
 
 <p align = "center">
   <sub><b>do not int/friend:</b>⠀pro/darkshippers & adjacent.⠀any non-traumagen "systems".
-  <br>transIDs + radqueer.⠀"gen ai artists".⠀<i>i block freely on & outside of ponytown.</i>
+  <br>transIDs + radqueer.⠀"gen ai artists, writers", etc.⠀<i>i block freely on & outside of ponytown.</i>
   <br><a href="https://rentry.co/goregvt">fandom/media dni</a> & <a href="https://rentry.co/commonsenseislacking">extended dni</a>.</sub>
 </p>
 
