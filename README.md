@@ -2,7 +2,8 @@
   <img src="https://64.media.tumblr.com/eb1622352ba7abc26b017d779dd43dff/400c00f71382e4c1-b0/s1280x1920/308b2e1779fc438b29b6806467d1ceb2a61c2dfd.pnj">
   <br>
   <sub>usually sitting with my boyfriend or alone.⠀⠀tone tags are not necessary; "/j & /srs" are okay.
-  <br>i'm not one to start a convo by myself, sorry ^_^.⠀⠀not on pt 24/7 i got things to do & places to be.</sub>
+  <br>i'm not one to start a convo by myself, sorry.⠀⠀not on pt 24/7 i got things to do & places to be.
+  <br>not super active in fandom spaces/areas & prefer to keep it that way.</sub>
 </p>
 
 <p align = "center">
