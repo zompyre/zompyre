@@ -3,7 +3,8 @@
   <br>
   <sub>usually sitting with my boyfriend or alone.⠀⠀tone tags are not necessary; "/j & /srs" are okay.
   <br>i'm not one to start a convo by myself, sorry.⠀⠀please <b>do not copy or post my skins</b>.
-  <br>not super active in fandom spaces/areas & prefer to keep it that way.⠀⠀not on pt 24/7.</sub>
+  <br>not super active in fandom spaces/areas & prefer to keep it that way.⠀⠀not on pt 24/7.
+  <br> also me (alts)⠀:⠀<a href="https://github.com/glamorous-rockstar">@glamorous-rockstar</a>⠀⠀<a href="https://github.com/soldja1shot1kil">@soldja1shot1kil</a></sub>
 </p>
 
 <p align = "center">
